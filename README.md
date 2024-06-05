@@ -1,0 +1,7 @@
+- 👋 Hola, eu sou @Hanso667.
+- 👀 tenho interesse em: programação, Video games, animes,etc...
+- 🌱 estou atualmente curso o curso tecnico de informatica na ulbra.
+- 📫 Você pode me contatar atraves dos seguintes meios:
+-  discord: iamhanso | email: fabriciolacerdamoraes2005@gmail.com
+- 😄 Pronouns: ele/dele.
+- ⚡ Fun fact: quando eu tenho um objetivo concreto e um caminho a seguir eu me foco completamente em seguir aquele caminho e chegar ao meu objetivo.
