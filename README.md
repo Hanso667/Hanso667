@@ -4,4 +4,3 @@
 - 📫 Você pode me contatar atraves dos seguintes meios:
 -  discord: iamhanso | email: fabriciolacerdamoraes2005@gmail.com
 - 😄 Pronouns: ele/dele.
-- ⚡ Fun fact: quando eu tenho um objetivo concreto e um caminho a seguir eu me foco completamente em seguir aquele caminho e chegar ao meu objetivo.
