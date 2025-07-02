@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou o Hanso667!
+# 👋 Olá, eu sou o Hanso!
 
 🎯 **Objetivo**  
 Estou estudando para concluir o **Curso Técnico em Informática** (estágio obrigatório) na ULBRA. Busco minha primeira experiência profissional na área de TI, especialmente em desenvolvimento web e suporte técnico.
